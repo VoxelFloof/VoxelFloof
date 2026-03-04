@@ -8,7 +8,7 @@ Creative Arts - Game Design‚ UI⁄UX Design‚ Art
 TV ＆ Media - Tales of Zale‚ The Life Series SMP
 ~~~~~~~~~>>
 Personal Details˸
-Age˸ 19 ｜ Birthday˸ Sept 13th
+Age˸ 21 ｜ Birthday˸ Sept 13th
 Identity˸ Gray Ace‚ Trans （MTF）‚ Pansexual
 Relationship˸ Taken
 Head Buddy˸ Lethe
